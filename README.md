@@ -1,0 +1,1 @@
+# ekip-6-inceleme
